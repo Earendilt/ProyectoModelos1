@@ -1,1 +1,1 @@
-Juan Andres Lopez Rivera, 1000758630, Ingeniería de Sistemas. Video Entrega 2: https://youtu.be/3YmX7Z-NvZU 
+Jhon Alexander Argaez Ibarra, 1036687066, Ingenieria de Sistemas, Juan Andres Lopez Rivera, 1000758630, Ingeniería de Sistemas. Video Entrega 2: https://youtu.be/3YmX7Z-NvZU, video entrega final: https://youtu.be/pZdxLE3QNVc
